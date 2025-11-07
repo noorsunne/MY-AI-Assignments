@@ -1,0 +1,2 @@
+# MY-AI-Assignments
+MY AI ASSIGNMENTS 
